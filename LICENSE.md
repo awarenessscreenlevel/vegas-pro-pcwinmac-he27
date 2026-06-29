@@ -1,4 +1,4 @@
-# 
+# Atualizado Vegas Pro extensões para Mac OS | Nativo Vegas Pro extensões para PC Windows. Com efeitos visuais e biblioteca de modelos — otimizado para máximo desempenho em cada plataforma.
 
 
 
